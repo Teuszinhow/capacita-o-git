@@ -7,3 +7,6 @@ Zeuts
 - **Super poder:**fator cura troll
 - **inventário:**
 -nunchako
+- **Golpes:** 
+-Punho da fúria
+-Nunchako Master
