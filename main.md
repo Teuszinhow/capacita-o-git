@@ -8,6 +8,7 @@ O governo...super humanos...cadastrar...rola altas tretas...Rhodes acho que vai 
 > Cade o Hulk na Guerra?? 
 > Cade o Thor ??
 > cade os X-men??
-> BatmanVsSuperman foi fraco!
+> BatmanVsSuperman foi fraco,!
+>não assisti foda-se!
 
 [time](teamkungfu.md)
