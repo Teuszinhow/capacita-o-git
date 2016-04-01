@@ -10,3 +10,4 @@ Zeuts
 - **Golpes:** 
 -Punho da fúria
 -Nunchako Master
+-Bruce lee taunt
