@@ -9,5 +9,6 @@ O governo...super humanos...cadastrar...rola altas tretas...Rhodes acho que vai 
 > Cade o Thor ??
 > cade os X-men??
 > BatmanVsSuperman foi fraco!
+> o vestido é azul e preto.
 
 [time](teamkungfu.md)
